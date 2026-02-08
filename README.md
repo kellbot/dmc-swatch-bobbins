@@ -11,4 +11,3 @@ Step 3: Print labels. If you have a Silhouette Cameo machine you can use the inc
 Step 4: Wind each bobbin with floss. Secure with a dab of superglue and trim excess thread.
 
 Step 5: Apply label and enjoy!
-- If you don't have access to a Silhouette Cameo machine, you can use Avery Return Address Labels 18294 (⅔" x 1 ¾") cut into 4. Each quarter label fits almost perfectly in the label space of the bobbins. They can then be labeled by hand with a permanent marker.
